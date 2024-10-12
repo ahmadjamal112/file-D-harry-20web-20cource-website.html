@@ -1,1 +1,1 @@
-# file-D-harry-20web-20cource-website.html
+www.dailyq.com
